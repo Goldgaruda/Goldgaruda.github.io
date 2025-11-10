@@ -1,1 +1,2 @@
 # Goldgaruda.github.io
+Nice!
